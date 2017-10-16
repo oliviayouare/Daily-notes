@@ -4,7 +4,7 @@
 3. reading list
 http://cn.wsj.com/gb/20171016/cec133851.asp 中国地方政府举债购买过剩住宅暗藏风险
 https://www.bloomberg.com/graphics/2017-china-market-impact/ 彭博对中国经济的图形化展示
-
+https://www.bloomberg.com/news/articles/2017-10-15/bond-traders-face-inflation-gamble-that-will-last-a-generation 债券与通胀的关系
 
 # 1013  morning news
 @(美联储)[比特币,日经指数,财政部美元债]
