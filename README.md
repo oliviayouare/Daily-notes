@@ -1,8 +1,10 @@
 # 1022 
-* 美联储耶伦北京时间21日早上发表讲话
-* 周小川近期讲话也颇多，最近一次提及“明斯基时刻”的概念
+* [美联储耶伦北京时间21日早上发表讲话](https://www.bloomberg.com/news/articles/2017-10-20/yellen-defends-her-legacy-amid-uncertainty-over-fed-leadership)，捍卫美联储在危机后实施的非常规货币政策，并且表示如有需要应该再次祭出这一招。（值得留意的是，媒体报道说特朗普可能在下周宣布下届美联储主席人选）
+* 周小川近期讲话也颇多，最近一次提及“[明斯基时刻](http://cn.wsj.com/gb/20171020/mnb093653.asp)”，警惕因企业杠杆过度累积而可能引发经济突然下行的风险。
 * 日本大选初步结果出炉，安倍再次当选。
-
+- 美股连续六周上涨，不仅是继续刷新记录高位，而且其连续刷新记录的次数也刷新了[记录](https://www.bloomberg.com/news/articles/2017-10-20/a-record-in-records-for-u-s-stocks-rallying-sixth-straight-week)。彭博用了record in records这个表达。
+- 比特币上周五（10月20日）又翻过一座山头，达到6000美元继续刷新历史记录。
+- 上周四美国国会通过2018财年预算议案，媒体说是这为税改清除了部分障碍（个人不太懂是为啥？）。
 
 
 # 1019 帝女花
