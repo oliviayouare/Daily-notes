@@ -1,10 +1,19 @@
-## 2019年 New Year List
+## 2019 New Year List
 - [ ] to get a driver lisence 
 - [ ] to gurantee 8 hours sleep everyday.
 - [ ] to eat healthily and try to loose weight with a target at 48kg.
 - [ ] to keep exercises 2-3 times per week, 30-60min each time.
 - [ ] 找到一份家居行业的工作，目标是成为室内设计师。
 - [ ] to read at least 10 books and write down book reports.
+
+##### week 1 (Feb 14th - Feb 17th) to do list
+- [ ] 8 hours sleep everyday, go to bed before 23:30 and get up at 7:30
+- [ ] to write an article or book report about 中国历代政治得失
+- [ ] to finish reading 八次危机 
+- [ ] to read a book and write report for 中信出版社
+- [ ] to start learning CAD
+- [ ] to learning B站色彩视频 
+- [ ] intensive reading -Economists-
 
 
 
