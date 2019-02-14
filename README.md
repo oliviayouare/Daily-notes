@@ -1,7 +1,11 @@
 ## 2019年 New Year List
-- [ ] driver lisence 驾驶证
-- [ ] 每日早睡早起，八个小时睡眠。
+- [ ] to get a driver lisence 
+- [ ] to gurantee 8 hours sleep everyday.
+- [ ] to eat healthily and try to loose weight with a target at 48kg.
+- [ ] to keep exercises 2-3 times per week, 30-60min each time.
 - [ ] 找到一份家居行业的工作，目标是成为室内设计师。
+- [ ] to read at least 10 books and write down book reports.
+
 
 
 
