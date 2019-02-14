@@ -13,7 +13,7 @@
 - [ ] to read a book and write report for 中信出版社
 - [ ] to start learning CAD
 - [ ] to learning B站色彩视频 
-- [ ] intensive reading -Economists-
+- [ ] intensive reading **Economists**
 
 
 
