@@ -1,3 +1,4 @@
+
 ## 2019 New Year List
 - [ ] to get a driver lisence 
 - [ ] to gurantee 8 hours sleep everyday.
@@ -15,6 +16,8 @@
 - [ ] to learning B站色彩视频 
 - [ ] intensive reading **Economists**
 
+week 1 notes：
+当我说我想成为一名室内设计师的时候，我脑子里想的是什么？我手头上又在做什么？
 
 
 
