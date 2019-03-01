@@ -7,11 +7,22 @@
 - [ ] 找到一份家居行业的工作，目标是成为室内设计师。
 - [ ] to read at least 10 books and write down book reports.
 
-##### week 1 (Feb 14th - Feb 17th) to do list
+##### week 2 (March 1st - March 7th) to do list
 - [ ] 8 hours sleep everyday, go to bed before 23:30 and get up at 7:30
+- [ ] 准备约半小时英语学习课程
 - [ ] to write an article or book report about 中国历代政治得失
 - [ ] to finish reading 八次危机 
-- [ ] to read a book and write report for 中信出版社
+- [ ] to start learning CAD
+- [ ] to learning B站色彩视频 
+- [ ] intensive reading **Economists**
+
+week2总结：
+
+##### week 1 (Feb 14th - Feb 17th) to do list
+- [x] 8 hours sleep everyday, go to bed before 23:30 and get up at 7:30
+- [ ] to write an article or book report about 中国历代政治得失
+- [ ] to finish reading 八次危机 
+- [x] to read a book and write report for 中信出版社
 - [ ] to start learning CAD
 - [ ] to learning B站色彩视频 
 - [ ] intensive reading **Economists**
