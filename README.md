@@ -1,4 +1,11 @@
 
+## 2019/5/14
+- [ ] 面临突发事件的时候，仍应保持最大理性。情感、情绪应放在一边，如果沉湎于情绪，反而可能会导致局面难以收拾。
+- [ ] Everyone must do his duty. 我的职责是什么？do my job. 这是我们度过目前难关的最大支撑。
+- [ ] 尽人事，听天命。于人于己，都是如此。He will come back, sooner or later, although things have changed since that very moment. Hope he is strong enough to take this.
+
+
+
 ## 2019 New Year List
 - [ ] to get a driver lisence 
 - [ ] to gurantee 8 hours sleep everyday.
