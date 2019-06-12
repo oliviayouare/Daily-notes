@@ -1,8 +1,3 @@
-## 2019/5/24
-- [ ] 心跳的感觉当然令人怀念。感情或许也难以自控。但是行为总归可以控制。
-- [ ] 最初买电动车，是为上下班不必全依赖Y，同时缩短时间。刚学会的第二天就摔了一跤，左侧手肘和手掌擦伤
-
-
 ## 2019/5/17
 - [ ] 事情是13日下午6点30多分发生的。现在脑子里最常浮现的还是他被掐住脖子按在墙上的样子。以及他被带走时低声对我说：x姐你先回去吧。最后有没有这一个吧字呢？记不清楚了。
 - [ ] 什么时候不会想起这个人呢？大概睡梦中他没有出现过。每天骑电动车上下班，电动车他陪我买的，也是他教我骑的、如何加速减速、如何转弯、如何上下坡，连头盔都是他给我在网上找的。手机锁屏画面、解锁方式都是在他的帮助下设置的。而我每天工作的各种琐事，都是交给他完成，PPT怎么做、音标如何查、单词如何念、剪辑才算流畅、我都一一教给他。
@@ -15,7 +10,7 @@
 ## 2019/5/14
 - [ ] 面临突发事件的时候，仍应保持最大理性。情感、情绪应放在一边，如果沉湎于情绪，反而可能会导致局面难以收拾。
 - [ ] Everyone must do his duty. 我的职责是什么？do my job. 这是我们度过目前难关的最大支撑。
-- [ ] 尽人事，听天命。于人于己，都是如此。He will come back, sooner or later, although things have changed since that very moment. Hope he is strong enough to take this.
+- [ ] 尽人事，听天命。于人于己，都是如此。He will come back, sooner or later, although things have changed since that very moment. Hope he is strong enough to survive this.
 - [ ] 尽最大努力、抱最好希望、做最坏打算。
 - [ ] Some people have proved that they are not trustworthy. I need to think about the future.
 
