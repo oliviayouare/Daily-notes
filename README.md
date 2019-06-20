@@ -1,3 +1,13 @@
+## 2019/6/20
+
+one month passed. and he still hasn't come back, which means that he will probably be faced with a sentence or the jail life for some time. I've decided to continue this work, even though he is not here by my side. 
+
+recent days, I've been thinking that how things have come to this? I had fun with him, whether on work or something else. He is such a childish, foolish person. 
+
+But he is so real. He awakened me in my heart for feelings to the world around.
+
+Hope he will get free ASAP and live a happy life in the rest of his life.
+
 ## 2019/5/17
 - [ ] 事情是13日下午6点30多分发生的。现在脑子里最常浮现的还是他被掐住脖子按在墙上的样子。以及他被带走时低声对我说：x姐你先回去吧。最后有没有这一个吧字呢？记不清楚了。
 - [ ] 什么时候不会想起这个人呢？大概睡梦中他没有出现过。每天骑电动车上下班，电动车他陪我买的，也是他教我骑的、如何加速减速、如何转弯、如何上下坡，连头盔都是他给我在网上找的。手机锁屏画面、解锁方式都是在他的帮助下设置的。而我每天工作的各种琐事，都是交给他完成，PPT怎么做、音标如何查、单词如何念、剪辑才算流畅、我都一一教给他。
