@@ -1,9 +1,9 @@
 ## 2019/6/25
 Lately, I've been haunted with the question that 'What should I do in the following 5 years? What can I do after my 40s?'. I never wanted to be a Englsih teacher, which, I think, is's so boring a job.
 
-rule 1# never to be an English teacher
-rule2# language is language. It's just a tool, which can be used to get access to certain industry.
-rule3# which industry should I devoted my time and energy to?
+- [ ] rule 1# never to be an English teacher
+- [ ] rule2# language is language. It's just a tool, which can be used to get access to certain industry.
+- [ ] rule3# which industry should I devoted my time and energy to?
 
 
 
