@@ -1,3 +1,9 @@
+## 2019/6/25
+Lately, I've been haunted with the question that 'What should I do in the following 5 years? What can I do after my 40s?'. I never wanted to be a Englsih teacher, which, I think, is's so boring a job.
+
+
+
+
 ## 2019/6/20
 
 one month passed. and he still hasn't come back, which means that he will probably be faced with a sentence or the jail life for some time. I've decided to continue this work, even though he is not here by my side. 
