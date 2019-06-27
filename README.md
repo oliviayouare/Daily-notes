@@ -1,3 +1,10 @@
+
+## 2019/6/27
+- [ ] Since I left my previous job two years ago, I had been thinking a little bit about 'what problem lies in the (financial) information industry? and where will it go?'. **I then believed that Internet is now full of too much rabbish/nonsense. Anyone who can provide, in whatever way, useful or valuable information would become valuable himself.** But I didn't how to do it. I can't say that I already got the key, although my prediction turned out to be right, obviously. More and more people are realising that public opionion is more biased than ever. It requires more effort to get close to the **truth**. Which, means that I should dig deeper on this subject.
+
+- [ ] another subject I paid attention to was bitcoin, or I'll rather say, blockchain. 
+
+
 ## 2019/6/25
 Lately, I've been haunted with the question that 'What should I do in the following 5 years? What can I do after my 40s?'. I never wanted to be a Englsih teacher, which, I think, is's so boring a job.
 
