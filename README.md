@@ -1,4 +1,9 @@
 
+
+## 2019/7/16
+- [ ] I've finished the first series of English teaching videos, 21 videos in total. Now I'm waiting for others to market and sell it. I sensed some uncertainty.
+
+
 ## 2019/6/27
 - [ ] Since I left my previous job two years ago, I had been thinking a little bit about 'what problem lies in the (financial) information industry? and where will it go?'. **I then believed that Internet is now full of too much rabbish/nonsense. Anyone who can provide, in whatever way, useful or valuable information would become valuable himself.** But I didn't how to do it. I can't say that I already got the key, although my prediction turned out to be right, obviously. More and more people are realising that public opionion is more biased than ever. It requires more effort to get close to the **truth**. Which, means that I should dig deeper on this subject.
 
