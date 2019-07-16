@@ -1,7 +1,16 @@
 
 
 ## 2019/7/16
-- [ ] I've finished the first series of English teaching videos, 21 videos in total. Now I'm waiting for others to market and sell it. I sensed some uncertainty.
+- [ ] I've finished the first series of English teaching videos, 21 videos in total. Now I'm waiting for others to market and sell it. I sensed some uncertainties. Some of them came from Y's job, some from mine.
+- [ ] I'd like to analyse myself at this moment. For so many years, it seems that I never mangaged to march out of the 'English' world, which, after my graduation, I found it sort of boring. The real world is full of realities. I struggle in it but I am also obsessed with it. I will not surrender.
+- [ ] Now it brought me with the question I've been thinking these two years. What should I do in the following five or ten years? Let me sort it out:
+
+- [ ] Still, Never to be just an English teacher. That's for sure.
+- [ ] Still again, interior design or furniture design fascinates me so much that I always feel some intense urge in my heart and always
+believe that some day, in the end, I would have to do this, if it's not right now.
+- [ ] Is there any possiblity I can do it both? You know, English is for a living and deisgn is to answer the call of my deep feelings.
+That would be a reasonable solution.
+- [ ] So the next thing for me is to make a PLAN.
 
 
 ## 2019/6/27
