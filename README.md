@@ -1,4 +1,9 @@
-
+## 2019/7/18
+- [ ] English listening program (ongoing, but how to make it unique/more interesting?)
+- [ ] English cousrse design(to be done, in about two weeks)
+- [ ] computer program (1month)
+- [ ] architecture sketchup(1 hour/day)
+- [ ] French （no particular scheduel)
 
 ## 2019/7/16
 - [ ] I've finished the first series of English teaching videos, 21 videos in total. Now I'm waiting for others to market and sell it. I sensed some uncertainties. Some of them came from Y's job, some from mine.
