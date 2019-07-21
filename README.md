@@ -1,3 +1,9 @@
+## 2019/7/21 English teaching PLAN
+- [ ] 根据个人需求、自身基础、性格偏好，制定有针对性的、较为长期的学习计划。记录其学习状态、效果、反馈，并随时调整教学策略。
+- [ ] 视频制作，一则作为课程辅助，创造习得环境、练习场景，二则作为有针对性（从本人行业或兴趣点出发）的深度讲解，例如讲金融风暴的影片。
+- [ ] 喜马拉雅电台，练习录音以及听力、跟读课件、或者是podcast。
+- [ ] 公众号更新，一切关于语言学习的各种或轻松或好玩或严肃的内容。
+
 ## 2019/7/18
 - [ ] English listening program (ongoing, but how to make it unique/more interesting?)
 - [ ] English cousrse design(to be done, in about two weeks)
