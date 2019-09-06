@@ -1,6 +1,12 @@
+## 2019/9/6 English course design & Home decor blog specific to-do-list
+- [ ] draw a cartoon image for the new english course
+- [ ] create a new wechat account for interior design & home furniture
+- [ ] collect some teaching materials for the following english course for Y
+- [ ] write an article about english course or home furnishing
+
 ## 2019/8/17 English course design & Home decor blog
 - [x] 课程根据学员年龄不同做出区分，各有侧重。
-- [ ] 对于较为初级的课程，仍然沿用老友记系列素材，唯需要进一步完善视频。 
+- [x] 对于较为初级的课程，仍然沿用老友记系列素材，唯需要进一步完善视频。 
 - [ ] 对于其他课程，根据教学方式不同来制作素材，当中需要考虑到学员的兴趣、需求和接受度。
 
 - [ ] 希望可以做一个家居类的公众号。
