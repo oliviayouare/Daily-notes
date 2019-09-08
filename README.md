@@ -1,5 +1,6 @@
 ## 2019/9/6 English course design & Home decor blog specific to-do-list
-- [ ] draw a cartoon image for the new english course
+- [x] draw a cartoon image for the new english course(效果不佳）
+- [x] 2019/9/8
 - [ ] create a new wechat account for interior design & home furniture
 - [ ] collect some teaching materials for the following english course for Y
 - [ ] write an article about english course or home furnishing
