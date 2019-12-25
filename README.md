@@ -1,10 +1,12 @@
+## 2019/12/25
+- [ ] today is Christmas, a very important holiday for westners. In fact, a happy Christmas atmosphere was around everywhere in our cities years ago. I can still remember the once-a-year party going on in my junior school, nosiy and happy. But it is a different story mow. Anyway, I just opened my surface laptop and wanted to look for the chair I saw in design week earlier this month. Then I saw a post in Reddit which says that he is spending Christmas Eve alone and wish to get some courage from other people's story. The post seems somewhat a little touching to me. Young people in different countries are sharing the same frustration or mood. I don't have any good story to tell. So, I am going to keep on digging out the chair now. Merry Chritmas!
+
 ## 2019/12/22
 - [ ] 根据已经找到的几家工厂货源，各挑出了部分产品以待上架。其实真正特别中意的产品不是非常多，不过我想着还是应该先在现有资源的基础上，把淘宝店真正运营起来才好。因此，还是慢慢照着这个思路去做。
 - [ ] 所以产品挑好之后，就要着手考虑如何上架的事情了。这里面设计的事情看起来是比较复杂的，比如首先淘宝店要装修成什么风格，产品应该怎么分类，店铺如何定位，如何打出自己独特的名号。
 - [ ] 在此之外，又想写一篇设计展的文章，速度太慢了，扶额。mad men的系列又随之延迟。。。今晚先把设计展的无论如何先搞定吧。
 
 - [ ] 另一方面是，小Y自从辞职后在家，太过于随意了。每天沉浸在电视剧、网络小说、游戏直播上面，建议他写日记也完全不听，我感觉自己快要绷不住了。他这样太堕落，令人担忧。不是说要鸡血满满、每日精进，或者说要杜绝娱乐活动，但他这样实在过得和那些没文化、没志向的颓废青年没区别，绝不是我希望自己丈夫应有的样子。
-
 
 ## 2019/12/13 11月中旬又回了一趟他老家，然后很快就到了12月。
 - [ ] 原本说好12月和我一起去看工厂找货源，但由于某几位老板的意见，他最终退缩并坚决反对之前的计划。我非常地生气，但无论如何设计展仍然去看了，并且在设计展之后又去看了两家厂，各自产品都还可以。我最近几天在筛选确定最终上架的商品，等定下来之后需要询问很多细节部分，包括最终的报价、物流、起订量、供货方式等等。我决心要开这样一家店，还是非常想开成的，不论最终是否能做起来。
