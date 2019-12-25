@@ -1,6 +1,14 @@
 ## 2019/12/25
 - [ ] today is Christmas, a very important holiday for westners. In fact, a happy Christmas atmosphere was around everywhere in our cities years ago. I can still remember the once-a-year party going on in my junior school, nosiy and happy. But it is a different story mow. Anyway, I just opened my surface laptop and wanted to look for the chair I saw in design week earlier this month. Then I saw a post in Reddit which says that he is spending Christmas Eve alone and wish to get some courage from other people's story. The post seems somewhat a little touching to me. Young people in different countries are sharing the same frustration or mood. I don't have any good story to tell. So, I am going to keep on digging out the chair now. Merry Chritmas!
 
+- [ ] 刚刚和Y小小地争执了一下，起因还是我担忧他过于浪费时间、过分沉迷于电视剧或者小说等娱乐活动，从而建议他利用一段时间做自己感兴趣的事情。他认为我是因为他这段时间没工作而恐慌。事实上他是家庭收入的主要贡献者，他表示如果我们调换位置，我是挣钱养家的人，而他是在家赋闲的人，我一定不会如他尊重我一样去尊重他。他也举了一个例子，即早上叫他起床的时候，有时明明他已经要起来了，但是我却长叹一口气，仿佛抗日战争失败了一样。
+
+- [ ] 我猛然醒悟，自己究竟在日常生活中扮演了一个什么样的角色？喋喋不休的控制狂。其实我有时在做家务时也好、在叹气时也好，会感觉到自己如同我妈上身。我自己亲身感受过那种压迫感，明明自己非常反感的事情，我却不折不扣地在另一半身上重演。
+
+- [ ] 说到底，是对对方不够信任、也不够包容。极其害怕对生活失去控制力。如果相信另一半这个人，就不会担心他沉迷于碎片化的娱乐，而忘记自己的志向。如果能够包容对方，就会知道他现在处于迷茫期，需要多一点时间和空间放空自己。我以前总是说他爱批评我，嫌他太唠叨，我又何尝不是呢？是因为自己没有工作、又没有小孩，陷入了中年困境。从而更加害怕失去可倚赖的另一半吧？
+
+- [ ] 嗯，他这样说出来其实让我能够更好地觉察自己，要感谢他。
+
 ## 2019/12/22
 - [ ] 根据已经找到的几家工厂货源，各挑出了部分产品以待上架。其实真正特别中意的产品不是非常多，不过我想着还是应该先在现有资源的基础上，把淘宝店真正运营起来才好。因此，还是慢慢照着这个思路去做。
 - [ ] 所以产品挑好之后，就要着手考虑如何上架的事情了。这里面设计的事情看起来是比较复杂的，比如首先淘宝店要装修成什么风格，产品应该怎么分类，店铺如何定位，如何打出自己独特的名号。
