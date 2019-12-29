@@ -1,3 +1,10 @@
+## 2019/12/29
+看到之前同事又去国外旅游啦，风景真美。自从辞职后我们手头就紧巴巴的，完全不敢出游，更别说出国了。总而言之，每每说起辞职这件事，小Y总是很可惜，因为我后来就很难找到那样高工资的工作了嘛。
+
+不过认清这个现实也没啥不好，这正说明自己确实能力不够，之前拿那样的工资只是公司发展得好，外溢给我们员工的福利而已。所以才更应该跳出来锻炼自己的通用ability啊。
+
+嗯，继续码字去啦。
+
 ## 2019/12/25
 - [ ] today is Christmas, a very important holiday for westners. In fact, a happy Christmas atmosphere was around everywhere in our cities years ago. I can still remember the once-a-year party going on in my junior school, nosiy and happy. But it is a different story mow. Anyway, I just opened my surface laptop and wanted to look for the chair I saw in design week earlier this month. Then I saw a post in Reddit which says that he is spending Christmas Eve alone and wish to get some courage from other people's story. The post seems somewhat a little touching to me. Young people in different countries are sharing the same frustration or mood. I don't have any good story to tell. So, I am going to keep on digging out the chair now. Merry Chritmas!
 
