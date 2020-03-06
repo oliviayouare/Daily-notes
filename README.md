@@ -1,3 +1,11 @@
+## 2020/3/6 looking for new job
+I just can't help thinking where it could lead me to if I continue to be a translator, or even a intepreter. It will always be as assistant work in most cases. Yes, I know that the top working opportunities will never be subsitituted by artificial intelligence. But I also know that the remaining intepreter or translator jobs are not only requiring for intepreting or translating skills, but also something else. 
+
+So what? I shouldn't be such frustrating. I know something else right? I know financial markets, though only a little bit. I also have a little knowledge about architecture and home docor. 
+
+If only I had accumulated more than 'A Liitle Bit'!
+
+
 ## 2019/12/29
 看到之前同事又去国外旅游啦，风景真美。自从辞职后我们手头就紧巴巴的，完全不敢出游，更别说出国了。总而言之，每每说起辞职这件事，小Y总是很可惜，因为我后来就很难找到那样高工资的工作了嘛。
 
