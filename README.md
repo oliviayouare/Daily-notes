@@ -1,3 +1,9 @@
+##3/12 trading notes
+Financial markets are exremely fluatuating these days. It started from US Stock's heavy plunge. Then Europe and Asia markets followed. What's worse is that not only stock market, commodity and bond also join in the stump party.
+
+
+
+
 ## 2020/3/6 looking for new job
 I just can't help thinking where it could lead me to if I continue to be a translator, or even a intepreter. It will always be as assistant work in most cases. Yes, I know that the top working opportunities will never be subsitituted by artificial intelligence. But I also know that the remaining intepreter or translator jobs are not only requiring for intepreting or translating skills, but also something else. 
 
