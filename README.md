@@ -1,3 +1,9 @@
+##3/21 house
+我们又一次谈到了房子，小跃对于房子的执念很深。这无可厚非，我也很希望有自己的家。
+但是我们三分之一的存款都外借给他家人了。并且在可预见的时间内都不可能还回来。
+
+
+
 ##3/12 trading notes
 Financial markets are exremely fluatuating these days. It started from US Stock's heavy plunge. Then Europe and Asia markets followed. What's worse is that not only stock market, commodity and bond also join in the stump party.
 
