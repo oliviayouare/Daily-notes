@@ -1,3 +1,8 @@
+##3/23 blog
+教程页面 https://asura88.github.io/%E5%BF%AB%E9%80%9F%E6%90%AD%E5%BB%BA%E4%B8%AA%E4%BA%BA%E5%8D%9A%E5%AE%A2/
+olivia's blog https://oliviayouare.github.io/
+今天先把台词试译完成吧。
+
 ##3/22 translation
 上周蛮认真地去做一个试译，竟然木有通过，很受打击啊。
 至少金融类型应该要过的嘛。。但是竟然也没有。。可能我真的需要重新思考自己的水平到底在哪里了。
