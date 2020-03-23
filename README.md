@@ -1,6 +1,9 @@
 ##3/23 blog
-教程页面 https://asura88.github.io/%E5%BF%AB%E9%80%9F%E6%90%AD%E5%BB%BA%E4%B8%AA%E4%BA%BA%E5%8D%9A%E5%AE%A2/
-olivia's blog https://oliviayouare.github.io/
+教程页面 
+https://asura88.github.io/%E5%BF%AB%E9%80%9F%E6%90%AD%E5%BB%BA%E4%B8%AA%E4%BA%BA%E5%8D%9A%E5%AE%A2/
+
+olivia's blog 
+https://oliviayouare.github.io/
 今天先把台词试译完成吧。
 
 ##3/22 translation
