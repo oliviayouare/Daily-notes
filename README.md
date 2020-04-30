@@ -5,7 +5,7 @@
 
 到现在这里，才觉得翻译真的是一个可以继续的职业了。之前一直和主流观点一样，担心翻译被机器取代。但我没有把眼光放得更开阔一点，既然有机器可以辅助，为什么我不去借助新技术呢？为什么我要坐以待毙呢？
 
-
+https://www.coursera.org/learn/fanyi-ruanjian/lecture/vpm2P/09-qi-ta-fan-yi-gong-ju-jie-shao-more-translation-tools-12-12-mt
 
 ## pregnant
 4/30 没想到我也怀孕了。。。从发现到现在有半个月了，不过现在还是敏感期，还不确定胚胎发育质量如何。接下来一个礼拜左右是关键期，要看能不能长出胎心胎芽。努力！
